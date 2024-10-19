@@ -2,7 +2,7 @@
 - 👀 I’m interested in not being a one trick pony, I'd rather know enough of everything.
 - 🌱 I’m currently learning front end web development
 - 💞️ I’m looking to collaborate on...nothing yet, I'm still learning.
-- 📫 How to reach me ...
+- 📫 How to reach me ashleybztoofly@yahoo.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I hate walking or sitting in grass.
 
